@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mirabdulloh
 - 👀 I’m interested in ... coding, palying football, debates 
-- 🌱 I’m currently learning ... Hardware
+- 🌱 I’m currently learning ... Software
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... tursunovmirabdulla@gmail.com
 - 😄 Pronouns: ...
